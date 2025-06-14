@@ -27,7 +27,6 @@ Además, se ha comprobado que ciertos hongos pueden degradar completamente el po
 
 
 
-Otros materiales:
 
 
 
